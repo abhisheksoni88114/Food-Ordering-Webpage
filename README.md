@@ -24,3 +24,6 @@ Here is screenshots of webpage -->>
 ![Screenshot (852)](https://user-images.githubusercontent.com/67193739/126266114-50c5666b-671f-46d5-a191-f57e83708e37.png)
 
 
+
+Also please refer to this vedio for more clearance!!
+link ---->>  https://drive.google.com/file/d/1GnzFGH0xoHGQVwjAbMktmtyMn2NxMX7Y/view?usp=sharing
